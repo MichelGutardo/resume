@@ -2,7 +2,7 @@
 
 ## Full Stack Developer 
 
-**E-mail:** michel.gutardo@gmail.com
+**E-mail:** michel.info13@gmail.com
 
 **Location:** Santos-SP - Brazil
 
